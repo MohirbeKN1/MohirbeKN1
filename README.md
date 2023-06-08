@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MohirbeKN1
+- 👋 Hi, I’m !_MohirbeK_!
 - 👀 I’m interested in created web site
 - 🌱 I’m currently learning fronted
 - 💞️ I’m looking to collaborate on all
